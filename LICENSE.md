@@ -1,4 +1,4 @@
-# 
+# Secure Mem0 themes. Featuring hybrid-AI-models and plugin-system — optimized for maximum performance and efficiency.
 
 
 
